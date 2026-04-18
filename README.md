@@ -9,5 +9,5 @@ VIK ☣︎ VIKTOR                 HE 𓄧 IT
 <sub>average dni (phobics and ists + proshippers) 
 </p>
 
-![div](https://i.postimg.cc/PxBNHs1t/tumblr-cb2acbaea3729b4b48eef12ec7b2e9fc-8d38d30c-2048.png)
+![div](https://i.pinimg.com/736x/85/8d/91/858d919f1dc9b192475dbc55438719a1.jpg)
 
