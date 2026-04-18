@@ -1,16 +1,12 @@
-## Hi there 👋
+<p align="center">
+VIK ☣︎ VIKTOR                 HE 𓄧 IT 
+</p>
+<p align="center">
+   <img width="300" height="253" src="https://i.postimg.cc/rsCZTT74/image0.jpg">
+<p>
 
-<!--
-**C4THARCASS/C4THARCASS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<sub>average dni (phobics and ists + proshippers) 
+</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+! [div](https://i.postimg.cc/3R9DQbnK/tumblr-296c2ea7c0a0102d4955e64b1e4f2802-f87d09e5-540.webp)
