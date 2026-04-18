@@ -2,7 +2,7 @@
 VIK ☣︎ VIKTOR                 HE 𓄧 IT 
 </p>
 <p align="center">
-   <img width="500" height="453" src="https://i.postimg.cc/rsCZTT74/image0.jpg">
+   <img width="700" height="653" src="https://i.postimg.cc/rsCZTT74/image0.jpg">
 <p>
 
 <p align="center">
